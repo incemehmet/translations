@@ -9,3 +9,7 @@ Those FETO’ists that planned to be liberated from the jail, only their dead bo
 The government must handle the FETO’ists in jail in a special manner. It is not a difficult job. Concentrate them in 1 or prisons. Assign POH (police special forces). That’s it.
 
 The FETO’ists must [be convinced to] know that they would be killed all, in case of a new coup attempt. That would ruin their plans also cause desertions among them.
+
+2 prisons shall be evacuated and if necessary jail guards will not be present. Only FETO’ists inmates will be there. There will be A, B, C plans to execute [FETO’ists].
+
+If the FETO’ist inmates know that they would be killed in case of a new coup attempt, it would change things. All the FETO’ists inmates should be gathered to Istanbul [or] Ankara.
